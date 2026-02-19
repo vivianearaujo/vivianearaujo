@@ -13,6 +13,7 @@ Bem-vindo(a) ao meu perfil! Atualmente, estou focada em otimizar processos e aut
 - **Automação de Mensagens**
 
 ### 📫 Vamos conversar?
+viviane123santosaraujo@gmail.com
 (83) 99993-2682
 
 ---
