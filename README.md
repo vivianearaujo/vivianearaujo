@@ -14,7 +14,7 @@ Bem-vindo(a) ao meu perfil! Atualmente, estou focada em otimizar processos e aut
 
 ### 📫 Vamos conversar?
 viviane123santosaraujo@gmail.com
-(83) 99993-2682
+https://www.linkedin.com/in/viviane-santos-b63986106/
 
 ---
 *“A tecnologia serve para nos dar mais tempo para o que realmente importa: as pessoas.”*
