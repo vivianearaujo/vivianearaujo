@@ -14,6 +14,7 @@ Bem-vindo(a) ao meu perfil! Atualmente, estou focada em otimizar processos e aut
 
 ### 📫 Vamos conversar?
 viviane123santosaraujo@gmail.com
+
 https://www.linkedin.com/in/viviane-santos-b63986106/
 
 ---
